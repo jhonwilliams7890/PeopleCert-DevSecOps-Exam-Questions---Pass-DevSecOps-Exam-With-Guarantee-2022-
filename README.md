@@ -1,0 +1,1 @@
+# PeopleCert-DevSecOps-Exam-Questions---Pass-DevSecOps-Exam-With-Guarantee-2022-
